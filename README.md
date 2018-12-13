@@ -1,4 +1,4 @@
-# Front-end-Engineer-React-London-WIRED-Top-100-Start-up-Up-to-75-000
+# Front-end Engineer // React // London // WIRED Top 100 Start-up // Up to £75,000
 
 This company is hot, hot, hot. Yeah, I know, every company claims to be disruptive and game-changing, but this company has been named regularly as one of the most disruptive companies in the world, looking at taking a huge gamble to tackle a serious problem. The client in question is looking to fix the retail industry, appreciate that the high street is dying, and building an innovative platform to fix this.
 
